@@ -35,7 +35,7 @@ src="https://tenor.com/view/school-live-cute-hello-anime-girl-yuki-takeya-gif-14
 </p>
 <div align="center">
 <details>
-    <summary><b>𝐏𝐑𝐄𝐒𝐒 𝐇𝐄𝐑𝐄 𝐓𝐎 𝐊𝐍𝐎𝐖 𝐌𝐎𝐑𝐄 𝐓𝐇𝐈𝐍𝐆𝐒</b></summary>
+    <summary><b>𝐏𝐑𝐄𝐒𝐒 𝐇𝐄𝐑𝐄</b></summary>
 
 </p>
 
